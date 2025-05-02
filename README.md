@@ -55,6 +55,8 @@ Esta promoción puede ser una buena oportunidad si tienes algo de experiencia y 
 
 En caso de que prefieras operar sin condiciones, puedes optar por no activar ningún bono.
 
+![Código de bono de Olymp Trade](https://github.com/user-attachments/assets/8cce0a92-defe-44cf-84dd-c705a978c8a8)
+
 ## ¿Dónde Encontrar Códigos Promocionales Activos de Olymp Trade?
 
 Puedes encontrar [bonos de depósito](https://smartthriftfinder.com/olymptrade-kostya) actuales en los siguientes lugares:
